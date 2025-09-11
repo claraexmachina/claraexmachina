@@ -13,7 +13,6 @@ Because at the end of the day, it’s not about technology. It’s about people.
 I’ve unpacked what being a PO has taught me here:  
 https://x.com/claraexmachina/status/1894816517549891882
 
-Movies still make me cry more than charts ever will 💧  
 
 ## 📫 Reach Me
 - Email: clara@keplr.app
