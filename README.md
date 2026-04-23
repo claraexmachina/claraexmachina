@@ -20,5 +20,5 @@ Every moment counts, no effort is wasted, and in the end even repetition turns i
 And yes, movies still make me cry more than charts ever will 💧😉
 
 ## 📫 Reach Me
-- Email: clara@keplr.app
+- Email: heejoochu@gmail.com
 - Twitter: x.com/claraexmachina
